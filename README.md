@@ -1,2 +1,0 @@
-# GregoryArmstrong.github.io
-Blog
